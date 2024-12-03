@@ -1,1 +1,1 @@
-# this is my local repo welcome to gujarat
+# this is my local repo welcome to gujaraty
